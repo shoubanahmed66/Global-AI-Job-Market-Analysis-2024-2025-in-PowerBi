@@ -1,0 +1,1 @@
+# Global-AI-Job-Market-Analysis-2024-2025-in-PowerBi
